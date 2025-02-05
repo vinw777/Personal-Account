@@ -1,1 +1,1 @@
-![][https://ibb.co/ymZgLkKb]
+![](https://ibb.co/ymZgLkKb)
